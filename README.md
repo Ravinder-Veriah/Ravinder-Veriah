@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @Ravinder-Veriah studied Business Information Technology from Red River College, winnipeg, Canda.Currently working to improve my javaScript skills.
